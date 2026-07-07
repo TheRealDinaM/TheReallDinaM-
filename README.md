@@ -61,7 +61,7 @@ I'm currently expanding my skills in project management and technology while bui
 - 📧 Email: mondayopeyemi6@gmail.com
 - LinkedIn:https://www.linkedin.com/in/monday-dina-a65787241
 - 
-- 🌐 Portfolio:https://yourusername.github.io
+- 🌐 Portfolio:https://therealdinam.github.io
 
 ---
 
